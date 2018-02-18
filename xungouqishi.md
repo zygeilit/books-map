@@ -6,5 +6,5 @@
 
 联系人：任女士（13176781061）
 
+![images](/dog7.png "照片")
 ![images](/dog6.png "照片")
-![images](/dog7.png "照片")·
